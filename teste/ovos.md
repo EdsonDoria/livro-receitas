@@ -1,1 +1,0 @@
-# Meus ovos estão frescos
